@@ -1,2 +1,2 @@
 # hello-world
-digital wallet
+cryptocon8 here to support blockchain and hiphop industry with digital HIP HOP wallet.
